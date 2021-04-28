@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Karan Mishra
+- 👀 I’m interested in Music
+- 🌱 I’m currently learning how to be responsible.
